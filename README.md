@@ -16,6 +16,7 @@ de 123RF, C. (s/f). Violencia Imágenes y Fotos. 123RF. Recuperado el 17 de ener
 No title. (s/f). Twitter. Recuperado el 17 de enero de 2024, de https://twitter.com/larepublica_ec/status/1741539424616296463?t=QNRIVDsp4YxvLNEE-s2oAQ&s=08
 
 
+
 Representación de la Violencia 
 
 Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros.

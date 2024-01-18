@@ -24,4 +24,5 @@ Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros.
 En cuanto a las imágenes, Gorelik (2002) aborda la importancia de las ideas urbanas y la imaginación urbana para comprender la ciudad. Este autor destaca la importancia de las imágenes en la construcción de imaginarios urbanos, permitiendo la reconstrucción de procesos identitarios y la creación de realidades simbólicas. Además, Pérez Argáez (2017) menciona que las fotografías, experiencias e imágenes contribuyen a la construcción de imaginarios urbanos, permitiendo la reconstrucción de procesos identitarios y la creación de realidades simbólicas. Las imágenes urbanas, ya sean icónicas o vernáculas, nos permiten ver la ciudad desde diferentes perspectivas y pueden evocar emociones, provocar reflexiones y moldear nuestro imaginario urbano.
 
 Fuentes utilizadas en el apartado:
+
 •	Yasi, É., Argáez, P., Andrea, P., Osorio, Z., Felipe, A., & Vargas, S. (2017). Los imaginarios urbanos que construyeron los habitantes del barrio Buenos Aires a partir de la llegada del nuevo tranvía de Ayacucho. https://repository.uniminuto.edu/bitstream/10656/5261/1/TCSP_PerezArgaezErsica_2017.pdf

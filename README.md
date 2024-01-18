@@ -26,3 +26,4 @@ En cuanto a las imágenes, Gorelik (2002) aborda la importancia de las ideas urb
 Fuentes utilizadas en el apartado:
 
 •	Yasi, É., Argáez, P., Andrea, P., Osorio, Z., Felipe, A., & Vargas, S. (2017). Los imaginarios urbanos que construyeron los habitantes del barrio Buenos Aires a partir de la llegada del nuevo tranvía de Ayacucho. https://repository.uniminuto.edu/bitstream/10656/5261/1/TCSP_PerezArgaezErsica_2017.pdf
+• Imagenes extraídas por red social ‘Whatsapp’. Grupos ‘Chone Informa al Ecuador’ y ‘Última Hora Guayaquil’. Números no registrados, denotados como ‘voz informante’.

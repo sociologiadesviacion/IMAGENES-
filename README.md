@@ -36,3 +36,12 @@ La representación de la violencia a través de memes e imágenes cómicas en el
 Explorar cómo la violencia se traduce en el ámbito digital a través de estos medios permite examinar las dinámicas culturales, el uso del humor como mecanismo de afrontamiento, así como los límites éticos y morales de la representación pública de situaciones violentas. Este análisis busca arrojar luz sobre la manera en que la sociedad ecuatoriana aborda la violencia, la percepción de su impacto y las estrategias de afrontamiento que se manifiestan a través de la difusión de memes y contenido cómico en línea
 
 Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
+
+Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
+
+***Enfoques referentes al delito en el Ecuador***
+
+La representación de la violencia y el delito en Ecuador a través de imágenes puede variar dependiendo del contexto y del tipo de violencia o delito que se quiera representar. Por ejemplo, a través de imágenes que ilustran el sentido de pertenencia hacia una u otra organización delictiva, además de ciertas referencias visuales que pueden pasar desapercibidas por personas que no vivan en barrios marginales pero que son de gran utilidad para las bandas criminales. En general, la representación de la violencia y el delito en Ecuador a través de imágenes puede ser una herramienta útil para visibilizar estos problemas y concientizar a la sociedad sobre su gravedad y complejidad.
+
+***Bibliografía***
+Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorrientes.com/2022/11/18/que-significan-las-zapatillas-colgadas-en-los-cables-de-luz/. Enmascarillado. (2022, 14 diciembre). Univision. https://www.univision.com/local/nueva-york-wxtv/hombre-amenaza-a-cajera-de-mcdonald-s-para-llevarse-unas-hamburguesas-y-todo-quedo-en-video-video. Extractos material audiovisual: https: https://youtu.be/O5OrVhOqA18?si=73_ctp9BG_DBZ1dB

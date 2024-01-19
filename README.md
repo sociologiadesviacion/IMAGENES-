@@ -1,6 +1,6 @@
 # IMAGENES-
 
-Autores 1 : Kelly leonard dranguet, YARIBEL QUIÑONEZ, ILIANA MUÑOZ
+Autores 001 : KELLY LEONARD DRANGUET, YARIBEL QUIÑONEZ, ILIANA MUÑOZ
 
 En este repositorio se presenta una serie de imágenes, que están conectados
 con actos que representan la violencia en diferentes espacios, desde un maltrato entre niños

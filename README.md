@@ -60,6 +60,18 @@ Fuentes Bibliográficas
 •	Búsquedas relacionadas: delincuencia, crimen, violencia, asalto, robo.
 •	"Memes de delincuencia" "De última hora" "El profe tv" "Guayaquil informa"
 
+Autores 006: Mora Reyes Brigitte Anatyr, Pinargote Catagua Juliana Elizabeth y Velez Valle Jenniffer Stefania
+
+El material visual son extractos mínimos de la realidad del escenario anárquico que atraviesa el Ecuador; las balas, la sangre y el dolor son protagonistas. Esta situación, que afecta fuertemente a las generaciones jóvenes actuales y a las futuras, los vuelve más vulnerables a caer en redes delictivas organizadas como una salida esperanzadora hacia un mejor estilo de vida, dada que las oportunidades son limitadas cuando el Estado no es capaz de denotar presencia en todo su territorio, es así como los grupos criminales reclutan jóvenes para garantizar mayores tomas de espacio a nivel nacional, he ahí la razón del interés por explicar y entender las codificaciones que arman los jóvenes para relacionarse con estos grupos criminales, lo cual implica una jerga específica para la categoría narcodelectivia, esta jerga se ve reflejada en términos expresados (videos) o escritos (imágenes). 
+
+Bibliografía: 
+- García, A. (2023, 5 enero). Policía captura a dos hombres con seis fusiles en Guayaquil. El Comercio. https://www.elcomercio.com/actualidad/seguridad/policia-captura-dos-hombres-seis-fusiles-guayaquil.html
+- Oñate, S. (2023, 30 enero). Tres hombres armados asaltan un bus en Guayaquil. El Comercio. https://www.elcomercio.com/actualidad/seguridad/hombres-armados-asaltan-bus-guayaquil.html
+- Red Social X, miércoles 17 de enero 2024.
+
+
+
+
 
 
 

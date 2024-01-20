@@ -46,3 +46,24 @@ La representación de la violencia y el delito en Ecuador a través de imágenes
 ***Bibliografía***
 
 Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorrientes.com/2022/11/18/que-significan-las-zapatillas-colgadas-en-los-cables-de-luz/. Enmascarillado. (2022, 14 diciembre). Univision. https://www.univision.com/local/nueva-york-wxtv/hombre-amenaza-a-cajera-de-mcdonald-s-para-llevarse-unas-hamburguesas-y-todo-quedo-en-video-video. Extractos material audiovisual: https: https://youtu.be/O5OrVhOqA18?si=73_ctp9BG_DBZ1dB
+
+Manifestación de la Violencia
+
+Autores: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+
+Las imágenes de la delincuencia y la violencia nos muestran una realidad urbana que muchas veces preferimos ignorar o negar. Estas imágenes nos confrontan con los problemas sociales, económicos y políticos que afectan a las ciudades y a sus habitantes. Al mismo tiempo, estas imágenes nos invitan a reflexionar sobre las causas y las consecuencias de la delincuencia y la violencia, así como sobre las posibles soluciones y alternativas. Las imágenes de la delincuencia y la violencia, ya sean reales o ficticias, nos permiten conocer la ciudad desde una perspectiva crítica y comprometida, y pueden generar conciencia, debate y acción social.
+
+Fuentes Bibliográficas
+
+•	76 fotos de stock e imágenes de alta resolución de Delincuencia. (s.f.). Obtenido de gettyimages: https://www.gettyimages.es/fotos/delincuencia
+
+•	Imágenes obtenidas de Redes Sociales (Facebook, Twitter, Instagram y WhatsApp"
+
+•	Búsquedas relacionadas: delincuencia, crimen, violencia, asalto, robo.
+
+•	"Memes de delincuencia" "De última hora" "El profe tv" "Guayaquil informa"
+
+
+
+
+

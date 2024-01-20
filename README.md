@@ -49,7 +49,7 @@ Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorri
 
 Manifestación de la Violencia
 
-Autores: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
 
 Las imágenes de la delincuencia y la violencia nos muestran una realidad urbana que muchas veces preferimos ignorar o negar. Estas imágenes nos confrontan con los problemas sociales, económicos y políticos que afectan a las ciudades y a sus habitantes. Al mismo tiempo, estas imágenes nos invitan a reflexionar sobre las causas y las consecuencias de la delincuencia y la violencia, así como sobre las posibles soluciones y alternativas. Las imágenes de la delincuencia y la violencia, ya sean reales o ficticias, nos permiten conocer la ciudad desde una perspectiva crítica y comprometida, y pueden generar conciencia, debate y acción social.
 

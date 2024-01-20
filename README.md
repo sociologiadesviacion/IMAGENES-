@@ -56,11 +56,8 @@ Las imágenes de la delincuencia y la violencia nos muestran una realidad urbana
 Fuentes Bibliográficas
 
 •	76 fotos de stock e imágenes de alta resolución de Delincuencia. (s.f.). Obtenido de gettyimages: https://www.gettyimages.es/fotos/delincuencia
-
 •	Imágenes obtenidas de Redes Sociales (Facebook, Twitter, Instagram y WhatsApp"
-
 •	Búsquedas relacionadas: delincuencia, crimen, violencia, asalto, robo.
-
 •	"Memes de delincuencia" "De última hora" "El profe tv" "Guayaquil informa"
 
 

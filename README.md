@@ -67,7 +67,9 @@ El material visual son extractos mínimos de la realidad del escenario anárquic
 Bibliografía: 
 - García, A. (2023, 5 enero). Policía captura a dos hombres con seis fusiles en Guayaquil. El Comercio. https://www.elcomercio.com/actualidad/seguridad/policia-captura-dos-hombres-seis-fusiles-guayaquil.html
 - Oñate, S. (2023, 30 enero). Tres hombres armados asaltan un bus en Guayaquil. El Comercio. https://www.elcomercio.com/actualidad/seguridad/hombres-armados-asaltan-bus-guayaquil.html
-- Red Social X, miércoles 17 de enero 2024.
+- Universo, E. (17 de enero de 2024). Red Social X. Obtenido de Red Social X: https://twitter.com/tctelevision/status/1747700339984203872?t=KfTfEM7tBqTfJTwjBQHmng&s=19
+
+
 
 
 

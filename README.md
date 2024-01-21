@@ -83,6 +83,17 @@ Referencias Bibliograicas:
 - Quesada, J. D., Quesada, J. D., & Quesada, J. D. (2024, 17 enero). Asesinado en Ecuador un importante fiscal que investigaba la delincuencia organizada y la toma del canal de televisión. El País América. https://www.google.com/amp/s/elpais.com/america/2024-01-17/asesinado-en-ecuador-un-importante-fiscal-que-investigaba-la-delincuencia-organizada-y-la-toma-del-canal-de-television.html%3foutputType=amp
 
 
+Autores 008: Katherine Michelle Tigua Mejía, Ariana Valentina Hurtado Borbor.
+
+Como bien plantea el sociólogo Manuel Castells(1987), "las imágenes, al registrar escenas de la vida real, pueden conectar al espectador con problemáticas sociales de forma directa y profunda" (page 56). Las fotografías presentes en esta muestra nos permiten observar que la violencia y el delito han estado inmersos en nuestra sociedad desde tiempos ancestrales. Sus diversas facetas han quedado plasmadas en representaciones visuales que ponen en evidencia la crueldad humana.
+Imágenes como las de la exhibición de prendas de vestir de distintas víctimas de violación sexual ubicada en la Universidad de Kansas, buscan generar conciencia sobre el absoluto error que significa pensar que una mujer tiene más o menos probabilidades de ser violada dependiendo de cómo vista. Más allá de los crímenes, el hostigamiento y la discriminación adoptan múltiples formas. Memes en redes sociales se mofan de la pobreza extrema y la falta de acceso a servicios
+elementales que sufren miles de personas marginadas. Tales imágenes descubren la caraoscura de Latinoamérica que urge transformar.
+
+Bibliografía:
+-https://www.redalyc.org/pdf/3191/319128357008.pdf
+-https://www.expresionforense.com/blog/la-importancia-de-la-fotografia-forense
+-https://www.bbc.com/mundo/vert-cul-46765741
+
 
 
 

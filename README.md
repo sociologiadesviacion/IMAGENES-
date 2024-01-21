@@ -19,7 +19,7 @@ No title. (s/f). Twitter. Recuperado el 17 de enero de 2024, de https://twitter.
 
 Representación de la Violencia 
 
-Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros.
+Autores 002: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros.
 
 En cuanto a las imágenes, Gorelik (2002) aborda la importancia de las ideas urbanas y la imaginación urbana para comprender la ciudad. Este autor destaca la importancia de las imágenes en la construcción de imaginarios urbanos, permitiendo la reconstrucción de procesos identitarios y la creación de realidades simbólicas. Además, Pérez Argáez (2017) menciona que las fotografías, experiencias e imágenes contribuyen a la construcción de imaginarios urbanos, permitiendo la reconstrucción de procesos identitarios y la creación de realidades simbólicas. Las imágenes urbanas, ya sean icónicas o vernáculas, nos permiten ver la ciudad desde diferentes perspectivas y pueden evocar emociones, provocar reflexiones y moldear nuestro imaginario urbano.
 
@@ -29,7 +29,7 @@ Fuentes utilizadas en el apartado:
 
 • Imagenes extraídas por red social ‘Whatsapp’. Grupos ‘Chone Informa al Ecuador’ y ‘Última Hora Guayaquil’. Números no registrados, denotados como ‘voz informante’.
 
-Autores 3: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
+Autores 003: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
 
 La representación de la violencia a través de memes e imágenes cómicas en el contexto ecuatoriano es un fenómeno que refleja la compleja intersección entre la cultura, la sociedad y las plataformas digitales. Estas representaciones humorísticas, compartidas a menudo en redes sociales, ofrecen una ventana única para comprender cómo se aborda y se procesa la violencia en el imaginario colectivo del país. Si bien la violencia es un tema delicado y serio, su representación en forma de memes y contenido cómico plantea cuestiones importantes sobre la percepción y la respuesta social a este fenómeno.
 
@@ -37,7 +37,7 @@ Explorar cómo la violencia se traduce en el ámbito digital a través de estos 
 
 Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
 
-Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
+Autores 004: Josué Vera; Pedro Sumba; Jostyn Pruna
 
 ***Enfoques referentes al delito en el Ecuador***
 
@@ -49,7 +49,7 @@ Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorri
 
 Manifestación de la Violencia
 
-Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+Autores 005: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
 
 Las imágenes de la delincuencia y la violencia nos muestran una realidad urbana que muchas veces preferimos ignorar o negar. Estas imágenes nos confrontan con los problemas sociales, económicos y políticos que afectan a las ciudades y a sus habitantes. Al mismo tiempo, estas imágenes nos invitan a reflexionar sobre las causas y las consecuencias de la delincuencia y la violencia, así como sobre las posibles soluciones y alternativas. Las imágenes de la delincuencia y la violencia, ya sean reales o ficticias, nos permiten conocer la ciudad desde una perspectiva crítica y comprometida, y pueden generar conciencia, debate y acción social.
 

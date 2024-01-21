@@ -70,6 +70,18 @@ Bibliografía:
 - Universo, E. (17 de enero de 2024). Red Social X. Obtenido de Red Social X: https://twitter.com/tctelevision/status/1747700339984203872?t=KfTfEM7tBqTfJTwjBQHmng&s=19
 
 
+Autores 007: Heen sanchez, Xiomara Avila 
+
+En el siguiente repositorio, presentamos un conjunto de imágenes que analizará distintas manifestaciones de violencia, abordando temas como homicidios, abusos y diversas formas de delincuencia. Se investigarán estos incidentes a lo largo de distintas fechas en los años 2023 y 2024, utilizando diversas fuentes como noticias y memes. Este enfoque proporcionará una visión integral de los diferentes tipos de violencia ocurridos en ese período. Es crucial señalar que el propósito es comprender la complejidad de estos eventos, sin glorificar la violencia en sí misma. Este repositorio servirá como un espacio para examinar ejemplos y reflexionar sobre el significado de la violencia en diversas situaciones.
+
+Referencias Bibliograicas:
+
+- Diario Expreso en Instagram enero 13, 2024: “los presos usan como escudo humano a los guias” https://www.instagram.com/p/C2DmhrRBdAZ/?igsh=MXJmMWV6b3BkeTZ2ag==
+
+- Mantilla, I. (2024, 16 enero). 130 tacos de dinamita fueron abandonados en una UPC del Centro Hist&oacute;rico. www.expreso.ec. https://www.expreso.ec/actualidad/130-tacos-dinamita-abandonados-upc-centro-historico-186212.html
+
+- Quesada, J. D., Quesada, J. D., & Quesada, J. D. (2024, 17 enero). Asesinado en Ecuador un importante fiscal que investigaba la delincuencia organizada y la toma del canal de televisión. El País América. https://www.google.com/amp/s/elpais.com/america/2024-01-17/asesinado-en-ecuador-un-importante-fiscal-que-investigaba-la-delincuencia-organizada-y-la-toma-del-canal-de-television.html%3foutputType=amp
+
 
 
 

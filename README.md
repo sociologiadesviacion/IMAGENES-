@@ -94,6 +94,19 @@ Bibliografía:
 -https://www.expresionforense.com/blog/la-importancia-de-la-fotografia-forense
 -https://www.bbc.com/mundo/vert-cul-46765741
 
+ECUADOR Y UNA GUERRA QUE ATERRA
+
+Es importante tener en cuenta que la situación en Ecuador es un tema delicado y complejo, por lo que es fundamental abordarlo con respeto y consideración hacia las personas afectadas.
+README IMÁGENES
+
+Autor 9: Celinda Mosquera Q.
+En cuanto a las imágenes, es importante mencionar que las fotografías de conflictos suelen ser una herramienta poderosa para mostrar la realidad de la guerra. Estas imágenes pueden capturar la devastación, el sufrimiento humano y el impacto en la infraestructura. En este sentido, autores como Susan Sontag en su libro "Ante el dolor de los demás" exploran el papel de las imágenes en los conflictos y cómo estas pueden influir en la percepción pública.
+
+Referencias empleadas para este apartado: 
+
+-	ANTE EL DOLOR DE LOS DEMAS: SUSAN SONTAG: Casa del Libro. (n.d.). Retrieved from https://www.casadellibro.com/libro-ante-el-dolor-de-los-demas/9788499082370/1802237
+-	Autores desconocidos de la red social “Whatsapp” (imágenes sin censura, de manera cruda, memes).
+-	Imágenes extraídas de la plataforma ‘X’, (Twitter); bajo el siguiente nombre de (Depurado, Sabotaje).
 
 
 

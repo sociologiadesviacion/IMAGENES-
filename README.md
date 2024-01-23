@@ -109,6 +109,23 @@ Referencias empleadas para este apartado:
 -	Imágenes extraídas de la plataforma ‘X’, (Twitter); bajo el siguiente nombre de (Depurado, Sabotaje).
 
 
+Autores 011 : Jefferson Macías, Sully Pillasagua, Jennifer Plua 
+
+En estos memes podemos destacar el reflejo de la angustia, el miedo y la impotencia que sentimos los ciudadanos ante la falta de garantías y protección por parte del Estado. No es posible que vivamos en un país donde salir a la calle sea un riesgo, donde los delincuentes actúen con total impunidad y donde la justicia sea lenta e ineficaz. Los memes son una forma de denunciar esta situación, de exigir soluciones y de buscar un poco de alivio en medio del caos. Sin embargo, los memes no son suficientes, necesitamos acciones concretas y urgentes para recuperar la paz y la seguridad que merecemos.
+
+Bibliografía:
+https://fb.watch/pHbm0kCcQI/?mibextid=Nif5oz 
+
+https://m.facebook.com/story.php?story_fbid=pfbid02seAneP497x2eoozM6s4Y2BSAUHMtT9hSzL4dKsXgocFSz8S4VxbP39XxtazSrhbnl&id=100077710002764&mibextid=Nif5oz
+
+https://m.facebook.com/story.php?story_fbid=pfbid0zXDwSv7gyX7sBFbkkakRbuhVVsWD4YGCYze4snK49QhiacPyDuXYKH65obEJpnkql&id=100069788327454&mibextid=Nif5oz 
+
+https://www.instagram.com/p/C2OfQ6NtiH0/?igsh=cXhhbjh2Zmd1MXR4 
+
+https://m.facebook.com/story.php?story_fbid=pfbid034x5tLNMT4n7GApdZcrdKjS3BPHEU3SWZ26kFxpSpJ3e2VTVTmNknpkAEFhuyXNALl&id=100051413170439&mibextid=Nif5oz 
+
+https://m.facebook.com/story.php?story_fbid=pfbid0TqyNo3yTyVNqy6MN3MNrgwXj1ZCM6KFdEuVpLdTEmmGDkVqpa6ucCXgxkVrcNKPel&id=100087285117469&mibextid=Nif5oz 
+
 
 
 

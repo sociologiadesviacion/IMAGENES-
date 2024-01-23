@@ -109,6 +109,18 @@ Referencias empleadas para este apartado:
 -	Imágenes extraídas de la plataforma ‘X’, (Twitter); bajo el siguiente nombre de (Depurado, Sabotaje).
 
 
+Autores 010: Valeria Zambrano, Daniela Lindao, Karla Crespo 
+
+Los memes son una forma de expresión humorística que reflejan la realidad social, política y cultural de un país. En el caso de Ecuador, los memes que he visto muestran la creatividad, el ingenio y la crítica de los ecuatorianos ante los acontecimientos que han marcado el año 2023. Desde las elecciones presidenciales, pasando por la pandemia, hasta el fútbol, los memes han sido una forma de reírse de las dificultades, celebrar los logros y cuestionar las autoridades. Creemos que los memes son una herramienta poderosa para comunicar ideas, generar debate y fomentar la participación ciudadana.
+
+Bibliografía:
+https://m.facebook.com/story.php?story_fbid=pfbid034x5tLNMT4n7GApdZcrdKjS3BPHEU3SWZ26kFxpSpJ3e2VTVTmNknpkAEFhuyXNALl&id=100051413170439&mibextid=Nif5oz
+https://m.facebook.com/story.php?story_fbid=pfbid0TqyNo3yTyVNqy6MN3MNrgwXj1ZCM6KFdEuVpLdTEmmGDkVqpa6ucCXgxkVrcNKPel&id=100087285117469&mibextid=Nif5oz
+https://www.facebook.com/reel/1457035974858720?s=yWDuG2&fs=e&mibextid=Nif5oz
+https://m.facebook.com/story.php?story_fbid=pfbid02qMv4diRy2GwPW3buPtB6hfe9XZEwNsThmcRe6nhJLktmjbH4Ab5icTbt9qZkUSr9l&id=100063884382612&mibextid=Nif5oz
+
+
+
 Autores 011 : Jefferson Macías, Sully Pillasagua, Jennifer Plua 
 
 En estos memes podemos destacar el reflejo de la angustia, el miedo y la impotencia que sentimos los ciudadanos ante la falta de garantías y protección por parte del Estado. No es posible que vivamos en un país donde salir a la calle sea un riesgo, donde los delincuentes actúen con total impunidad y donde la justicia sea lenta e ineficaz. Los memes son una forma de denunciar esta situación, de exigir soluciones y de buscar un poco de alivio en medio del caos. Sin embargo, los memes no son suficientes, necesitamos acciones concretas y urgentes para recuperar la paz y la seguridad que merecemos.
